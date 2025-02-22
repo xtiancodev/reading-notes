@@ -26,7 +26,7 @@
 
 5. Deja marinar en el refrigerador por 15-20 minutos, hasta que el pescado esté "cocido" por el limón.
 
-## Para servir
+
 
 * Sirve el ceviche bien frío
 * Acompaña con rodajas de camote cocido
